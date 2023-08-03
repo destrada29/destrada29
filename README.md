@@ -15,7 +15,7 @@ Hi, I am David Estrada Jiménez, a **highly skilled developer** :neckbeard: with
 
 ## Feel free to contact me for any opportunity or collaboration:
 
- #### [LinkedIn](www.linkedin.com/in/david-estrada-jimenez) - [Email](David_estarda@hotmail.es) - [Gmail](Destrada292002@gmail.com)
+ #### [LinkedIn](www.linkedin.com/in/david-estrada-jimenez) - [Email](David_estrada@hotmail.es) - [Gmail](Destrada292002@gmail.com)
 
 
 
